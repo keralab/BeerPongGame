@@ -8,7 +8,7 @@ Nolan Slade  		001401079
 Vyome Kishore		001406201 
 Kerala Brendon		001424625 
 
-
+Game Playthrough Video: https://www.youtube.com/watch?v=CFa7uzJjRi4&t=59s
 
 Game Name & Description
 - - - - - - - - - - - -
